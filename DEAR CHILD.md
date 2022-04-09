@@ -45,3 +45,45 @@ Many a times what makes a decision right isn't the decision itself but sticking 
 
 Dear Child,
 The greatest blessing that God can give you in your career is to make your passion and profession one.
+
+Dear Child, 
+No matter how much you save your talents, you'll never get a loan through them. So use them unsparingly.
+
+Dear Child, 
+One of the key aspects of wisdom is persperctive.
+
+Dear Child, 
+The only way peace can be found through war is in death.
+
+Dear Child,
+The hardest things have the greatest value.
+
+Dear Child, 
+Don't turn your personal issues into something greater than they really are and call it your choice.
+
+Dear Son, 
+This St Valentine's Day, just like every other day, put the MAN in RoMANtic.
+
+Dear Child, 
+When you celebrate life you won't need to worry about death.
+
+Dear Child, 
+It's called metamorphosis. Don't be disappointed with me for who I was yesterday. Afterall, you can't hate a butterfly because yesterday it was a caterpillar.
+
+Dear Child, 
+I pray that you come to know that you are more than you think you are.
+
+Dear Child, 
+If there's a difference between how you pray when you are need and when you have received, then you are not praying the right way.
+
+Dear Child, 
+Just because you can explain it, doesn't make it any less of a miracle.
+
+Dear Child, 
+When you become arrogant and overconfident, your strength becomes your weakness.
+
+Dear Child,
+When you know God's purpose for your life, your hard times become non-existent and your good times become sweeter.
+
+Dear Child,
+Christ is more than knowledge; He is Truth itself.
