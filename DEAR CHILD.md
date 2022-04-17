@@ -87,3 +87,45 @@ When you know God's purpose for your life, your hard times become non-existent a
 
 Dear Child,
 Christ is more than knowledge; He is Truth itself.
+
+Dear Child,
+Salary is the reward of solving problems.
+
+Dear Child,
+Enjoy the process, enjoy the time and enjoy the journey.
+
+Dear Child,
+Have you ever laid down your crown to serve God.
+
+Dear Child,
+Humility is when you have a choice. (A choice not a situation).
+
+Dear Child,
+Arrogance is built on ignorance.
+
+Dear Child,
+I've just realised that fulfillment is also a choice.
+
+Dear Child,
+The world celebrates you more in death than in life.
+
+Dear Child,
+Over the past few years, my perception of life has greatly changed and I know this is essential in my quest to be a Man.
+
+Dear Child,
+Challenges in life aren't there for us to prove ourselves but so that God's manifestations can be witnessed.(...so that you can witness God's manifestation in your life).
+
+Dear Child,
+A day has 24 hours not 12. Remeber that.
+
+Dear Child,
+We all submit to the Will of God.
+
+Dear Child,
+Great people in the Bible like Jesus and Job triumphed not because they asked for earthly blessings but because they submitted to God's Will.
+
+Dear Child,
+Putting others down doesn't mean or make you better than them. It just shows how unfulfilled you are.
+
+Dear Child,
+Don't lie to yourself. God owes you nothing. Come rain or shine, success or failure, good or bad and whether you like it or not, glory and honour shall be given unto Him. Now and forever.
