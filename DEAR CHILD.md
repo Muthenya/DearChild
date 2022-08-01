@@ -130,7 +130,7 @@ Putting others down doesn't mean or make you better than them. It just shows how
 Dear Child,
 Don't lie to yourself. God owes you nothing. Come rain or shine, success or failure, good or bad and whether you like it or not, glory and honour shall be given unto Him. Now and forever.
 
-Dear Child'
+Dear Child,
 Another great realisation: Success is a choice.
 
 Dear Child,
