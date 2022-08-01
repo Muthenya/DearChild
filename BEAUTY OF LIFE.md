@@ -214,4 +214,4 @@ Everyone at some point in life needed someone to hold their hand and raise them 
 
 The magnitude of prayer far outweighs that of sin.
 
-Greater salvation awaits those who have not yet recourse to Christ but will do so in good time. Ooh! What grate joy awaits them.
+Greater salvation awaits those who have not yet recourse to Christ but will do so in good time. Ooh! What great joy awaits them.
