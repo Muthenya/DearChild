@@ -138,3 +138,18 @@ Not all monkeys are black.
 
 Dear Child, 
 Love is shown by doing more than what is expected.
+
+Dear Child'
+God raises you up not so that you look down upon others, but so that you can raise up others as well.
+
+Dear Child,
+Good people do exist and you have the golden opportunity of seeing one  when you look in the mirror but this depends on you.
+
+27/03/2021, 06:10: Dear Child,
+The sooner you accept that it's all God's doing, the better, happier and more peaceful your life is going to be.
+
+03/04/2021, 19:27: Dear Child,
+Love is laying down your crown and humbling yourself. Love is leaving behind everything and committing to something greater than yourself. Thus I say, Dear Child, I love you.
+
+07/04/2021, 19:59: Dear Child,
+The reason why you lack peace is because you are living for this world. Remember, you don't belong to this world, Christ said so Himself.
