@@ -153,3 +153,172 @@ Love is laying down your crown and humbling yourself. Love is leaving behind eve
 
 07/04/2021, 19:59: Dear Child,
 The reason why you lack peace is because you are living for this world. Remember, you don't belong to this world, Christ said so Himself.
+
+08/04/2021, 18:57: Dear Child,
+Remember, the only thing special about you is that God loves you and that is more than enough.
+
+09/04/2021, 19:59: Dear Child, 
+It has never and will never be about how many you are but about how united you are.
+
+10/04/2021, 19:48: Dear Child,
+Stop all that you are doing and let them know that you love them that. Remember, the only time you have is now not yesterday and not tomorrow.
+
+12/04/2021, 18:16: Dear Child,
+People live in fear because they forget that everything is in God's hands.Remember, never be afraid. He knows what's best.
+
+13/04/2021, 02:28: Dear Child,
+Do you know the difference between passion and necessity?
+
+13/04/2021, 05:12: Dear Child,
+Your greatness isn't seen in your triumph over others but when you raise others to share in your glory; success.
+
+14/04/2021, 20:49: Dear Child,
+There's a fine line between counting your chicks before they hatch and having faith in God.
+
+23/04/2021, 19:51: Dear Child
+The key to influencing others lies in not telling them what to do.
+
+25/04/2021, 06:51: Dear Child,
+I'm striving towards earning the right to be called a Man 💪🙏🧠❤.
+
+27/04/2021, 19:11: Dear Child, 
+You are not of this world so stop trying to fit in (already defined).
+
+28/04/2021, 22:29: Dear Child,
+You must first learn to give before you take. That's why you forgive and not fortake.
+
+04/06/2021, 09:17: Dear Child,
+Nice guys don't finish last because they are not competing with anyone.
+
+01/07/2021, 19:48: Dear Child,
+Marriage requires a wise mind and a heart of gold not a big mouth...
+
+21/08/2021, 19:42: Dear Child,
+Greener pastures aren't what you find. They are what you make.
+
+05/09/2021, 23:31: Dear Child,
+There are those who will tell you to heed wise counsel and there are those who will tell you to live your life.Whichever the case, submit to God's will.
+
+02/11/2021, 20:47: Dear Child,
+being an ambassador of the Most High is a full-time job; tiring, tasking and thus, all the more rewarding.
+
+04/11/2021, 09:20: Dear Child,
+The best of you isn't what you have but what you give.
+
+12/11/2021, 09:26: Dear Child, 
+The greatest thing that kills faith is not human weakness but man's forgetfull nature.
+
+15/11/2021, 19:39: Dear Child, 
+Metting out your anger onto others is a show of your inability to manage a situation. (not a show of superiority but a show of weakness)
+
+02/03/2022, 06:02: Dear Child, 
+For the wise, life isn't full of problems. It's full of challenges that lead to opportunities.
+
+03/03/2022, 06:12: Dear Child,
+Christ didn't come so that we can have Christmas. He came for Lent so that we can have Easter.
+Remember, what makes us Christians isn't what happened in Bethlehem but what happened on Calvary.
+
+09/03/2022, 13:37: Dear Child, 
+Fatherhood is all about love. I understand this now and it's all because of you.
+
+18/03/2022, 18:31: Dear Child, 
+Rules aren't meant to give you a hard time but rather to keep you safe. Remember, break the rules, they break you.
+
+21/03/2022, 16:44: Dear Child, 
+Being head of the family is with regard to your family's well being, not your own.
+
+21/03/2022, 19:44: Dear Child, 
+Politics is all about interests not affiliation.
+
+28/03/2022, 11:21: Dear Child, 
+Every bright kid is a potential evil mastermind.
+
+05/04/2022, 21:40: Dear Child, 
+One of the key aspects of wisdom is persperctive.
+
+12/04/2022, 21:02: Dear Child, 
+To influence any form of good, whatever your role or position; that's the true measure of leadership.
+
+12/04/2022, 21:27: Dear Child,
+It's never about the increasing your capacity to accommodate many but to accommodate those who matter.
+
+13/04/2022, 17:29: Dear Child, 
+It's not change if it's doing new things using old ways.
+
+19/04/2022, 18:19: Dear Child, 
+A job well done is its own reward.
+
+19/04/2022, 18:21: Dear Child,
+It's not just that God deserves all glory and honour but it all belongs to Him.
+
+20/04/2022, 19:51: Dear Child, 
+The interesting thing about blessings is no matter how much they overflow, they can never get depleted.
+
+11/05/2022, 20:47: Dear Child, 
+There are those who are destined for greatness. Others are greatness itself.
+
+07/06/2022, 10:56: Dear Child 
+If you want to receive things on a silver platter, you should at least own a silver platter.
+
+09/06/2022, 08:12: Dear Child,
+Peace and democracy aren't necessarily a result of each other.
+
+15/06/2022, 23:15: Dear Child, 
+If you are having today the same problem you had yesterday, then you are the problem.
+
+21/06/2022, 21:05: Dear Child, 
+No matter how far you go never forget where you've come from.
+
+23/06/2022, 22:26: Dear Child,
+Discrimination isn't ignorance of truth but the denial of it.
+
+26/06/2022, 05:10: Dear Child, 
+A good lie is that which cannot be separated from the truth: what you call a holy lie.
+
+26/06/2022, 05:14: Dear Child, 
+There's no difference between having knowledge and not using it and not having it at all.
+
+26/06/2022, 05:20: Dear Child, 
+There's a very clear difference between money and the love of money. Pray to God to know the difference.
+
+03/07/2022, 16:51: Dear Child, 
+Challenge is opportunity; challenge is growth.
+
+04/07/2022, 05:45: Dear Child, 
+If you can waste time arguing about it, then it's not that serious.
+
+04/07/2022, 12:58: Dear Child, 
+You don't necessarily get the job done when all your demands are met, you get the job done when you do the job.
+
+08/07/2022, 06:14: Dear Child 
+Judging others doesn't justify one's faults.
+
+10/07/2022, 16:59: Dear Child, 
+People argue either because they are ignorant or implicated.
+
+12/07/2022, 20:55: Dear Child, 
+If you are kind to the living, you need not worry about the dead.
+
+12/07/2022, 20:55: Dear Child, 
+Democracy, the illusion of freedom, is the greatest triumph of dictatorship.
+
+13/07/2022, 06:17: Dear Child, 
+One of the greatest similarities between wisdom and foolishness is that they don't discriminate.
+
+15/07/2022, 15:50: Dear Child,
+But Isn't that what gives meaning to life; sentiment. The value that we attach to things that would otherwise be valueless.
+
+18/07/2022, 10:56: Dear Child, 
+I've prayed that God grants you many blessings and graces; amongst them is the strength and wisdom to embrace and stand by the Truth.
+
+18/07/2022, 21:39: Dear Child, 
+The entire world might forget you but always remember that the Lord knows you by name.
+
+24/07/2022, 17:55 : Dear Child, 
+To what extent do we lack faith that we begin to hope on luck?
+
+26/07/2022, 13:40: Dear Child, 
+There's no taste that's is so sweet and feeling that's so comforting that it can replace God's role in your life.
+
+31/07/2022, 08:53: Dear Child,
+If it is selfish then it is sinful and not blessed.
