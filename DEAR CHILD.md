@@ -95,7 +95,7 @@ Dear Child,
 Enjoy the process, enjoy the time and enjoy the journey.
 
 Dear Child,
-Have you ever laid down your crown to serve God.
+Have you ever laid down your crown to serve God?
 
 Dear Child,
 Humility is when you have a choice. (A choice not a situation).
@@ -104,7 +104,7 @@ Dear Child,
 Arrogance is built on ignorance.
 
 Dear Child,
-I've just realised that fulfillment is also a choice.
+I've just realised that fulfilment is also a choice.
 
 Dear Child,
 The world celebrates you more in death than in life.
@@ -113,10 +113,10 @@ Dear Child,
 Over the past few years, my perception of life has greatly changed and I know this is essential in my quest to be a Man.
 
 Dear Child,
-Challenges in life aren't there for us to prove ourselves but so that God's manifestations can be witnessed.(...so that you can witness God's manifestation in your life).
+Challenges in life aren't there for us to prove ourselves but so that God's manifestations can be witnessed. (...so that you can witness God's manifestation in your life).
 
 Dear Child,
-A day has 24 hours not 12. Remeber that.
+A day has 24 hours, not 12. Remember that.
 
 Dear Child,
 We all submit to the Will of God.
