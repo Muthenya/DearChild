@@ -161,10 +161,10 @@ Remember, the only thing special about you is that God loves you and that is mor
 It has never and will never be about how many you are but about how united you are.
 
 10/04/2021, 19:48: Dear Child,
-Stop all that you are doing and let them know that you love them that. Remember, the only time you have is now not yesterday and not tomorrow.
+Stop all that you are doing and let them know that you love them. Remember, the only time you have is now not yesterday and not tomorrow.
 
 12/04/2021, 18:16: Dear Child,
-People live in fear because they forget that everything is in God's hands.Remember, never be afraid. He knows what's best.
+People live in fear because they forget that everything is in God's hands. Remember, never be afraid. He knows what's best.
 
 13/04/2021, 02:28: Dear Child,
 Do you know the difference between passion and necessity?
@@ -191,7 +191,7 @@ You must first learn to give before you take. That's why you forgive and not for
 Nice guys don't finish last because they are not competing with anyone.
 
 01/07/2021, 19:48: Dear Child,
-Marriage requires a wise mind and a heart of gold not a big mouth...
+Marriage requires a wise mind and a heart of gold, not a big mouth...
 
 21/08/2021, 19:42: Dear Child,
 Greener pastures aren't what you find. They are what you make.
@@ -206,7 +206,7 @@ being an ambassador of the Most High is a full-time job; tiring, tasking and thu
 The best of you isn't what you have but what you give.
 
 12/11/2021, 09:26: Dear Child, 
-The greatest thing that kills faith is not human weakness but man's forgetfull nature.
+The greatest thing that kills faith is not human weakness but man's forgetful nature.
 
 15/11/2021, 19:39: Dear Child, 
 Metting out your anger onto others is a show of your inability to manage a situation. (not a show of superiority but a show of weakness)
@@ -215,8 +215,8 @@ Metting out your anger onto others is a show of your inability to manage a situa
 For the wise, life isn't full of problems. It's full of challenges that lead to opportunities.
 
 03/03/2022, 06:12: Dear Child,
-Christ didn't come so that we can have Christmas. He came for Lent so that we can have Easter.
-Remember, what makes us Christians isn't what happened in Bethlehem but what happened on Calvary.
+Christ didn't come so that we could have Christmas. He came for Lent so that we could have Easter.
+Remember, what makes us Christians isn't what happened in Bethlehem but what happened in Calvary.
 
 09/03/2022, 13:37: Dear Child, 
 Fatherhood is all about love. I understand this now and it's all because of you.
@@ -225,22 +225,22 @@ Fatherhood is all about love. I understand this now and it's all because of you.
 Rules aren't meant to give you a hard time but rather to keep you safe. Remember, break the rules, they break you.
 
 21/03/2022, 16:44: Dear Child, 
-Being head of the family is with regard to your family's well being, not your own.
+Being head of the family is with regard to your family's well-being, not your own.
 
 21/03/2022, 19:44: Dear Child, 
-Politics is all about interests not affiliation.
+Politics is all about interests, not affiliation.
 
 28/03/2022, 11:21: Dear Child, 
 Every bright kid is a potential evil mastermind.
 
 05/04/2022, 21:40: Dear Child, 
-One of the key aspects of wisdom is persperctive.
+One of the key aspects of wisdom is perspective.
 
 12/04/2022, 21:02: Dear Child, 
 To influence any form of good, whatever your role or position; that's the true measure of leadership.
 
 12/04/2022, 21:27: Dear Child,
-It's never about the increasing your capacity to accommodate many but to accommodate those who matter.
+It's never about increasing your capacity to accommodate many but to accommodate those who matter.
 
 13/04/2022, 17:29: Dear Child, 
 It's not change if it's doing new things using old ways.
