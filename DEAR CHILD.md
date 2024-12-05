@@ -50,7 +50,7 @@ Dear Child,
 No matter how much you save your talents, you'll never get a loan through them. So use them unsparingly.
 
 Dear Child, 
-One of the key aspects of wisdom is persperctive.
+One of the key aspects of wisdom is perspective.
 
 Dear Child, 
 The only way peace can be found through war is in death.
@@ -68,13 +68,13 @@ Dear Child,
 When you celebrate life you won't need to worry about death.
 
 Dear Child, 
-It's called metamorphosis. Don't be disappointed with me for who I was yesterday. Afterall, you can't hate a butterfly because yesterday it was a caterpillar.
+It's called metamorphosis. Don't be disappointed with me for who I was yesterday. After all, you can't hate a butterfly because yesterday it was a caterpillar.
 
 Dear Child, 
 I pray that you come to know that you are more than you think you are.
 
 Dear Child, 
-If there's a difference between how you pray when you are need and when you have received, then you are not praying the right way.
+If there's a difference between how you pray when you are in need and when you have received, then you are not praying the right way.
 
 Dear Child, 
 Just because you can explain it, doesn't make it any less of a miracle.
@@ -101,7 +101,7 @@ Dear Child,
 Humility is when you have a choice. (A choice not a situation).
 
 Dear Child,
-Arrogance is built on ignorance.
+Arrogance is built on ignorance.*
 
 Dear Child,
 I've just realised that fulfilment is also a choice.
@@ -143,7 +143,7 @@ Dear Child'
 God raises you up not so that you look down upon others, but so that you can raise up others as well.
 
 Dear Child,
-Good people do exist and you have the golden opportunity of seeing one  when you look in the mirror but this depends on you.
+Good people do exist and you have the golden opportunity of seeing one  when you look in the mirror and this depends on you.
 
 27/03/2021, 06:10: Dear Child,
 The sooner you accept that it's all God's doing, the better, happier and more peaceful your life is going to be.
