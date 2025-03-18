@@ -139,7 +139,7 @@ Not all monkeys are black.
 Dear Child, 
 Love is shown by doing more than what is expected.
 
-Dear Child'
+Dear Child,
 God raises you up not so that you look down upon others, but so that you can raise up others as well.
 
 Dear Child,
